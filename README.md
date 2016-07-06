@@ -7,8 +7,8 @@ test in atom
 
 n
 
-wannes is a dick
+wannes is a NOT adick
 
-Jentonic is de beste.
+Jentonic is a drunk.
 
 ECLIPSE SUCKT! atom ook een beetje
