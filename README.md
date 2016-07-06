@@ -7,7 +7,7 @@ test in atom
 
 n
 
-wannes is a NOT adick
+wannes is a NOT a dick
 
 Jentonic is a drunk.
 
